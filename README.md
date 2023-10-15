@@ -1,4 +1,4 @@
 # Olá, eu me chamo Caroline! 👋
 
-* Contate-me no emnail:[](carolinemarianav@hotmail.com)
-* Linkedin: [](https://www.linkedin.com/in/caroline-mariana-val%C3%A9rio/)
+* Contate-me no email: carolinemarianav@hotmail.com
+* Linkedin: www.linkedin.com/in/caroline-mariana-val%C3%A9rio/
